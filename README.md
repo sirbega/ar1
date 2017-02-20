@@ -1,4 +1,4 @@
 # ar1
 busting my ass
 
-I'm an asshole!
+Just being a dood
